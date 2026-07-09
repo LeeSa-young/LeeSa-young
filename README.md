@@ -7,3 +7,5 @@
   <p align="center">
     　  　   　  　    　 　  　adult　—　 $${\color{#897cb4}18teen}$$ 　　　　　　mentally　　 unstable
   </p>
+
+<img align="right" width="435" src="https://file.garden/aG4uPTNO_Dlar84S/wobby-lsy.gif" />
