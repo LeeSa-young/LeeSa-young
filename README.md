@@ -31,3 +31,7 @@
    <p align="center">
 　　　 　 　　 　　　if 　 you　 want　 to
  </p>
+
+<p align="left">
+  <img width="95" src="https://64.media.tumblr.com/c327cc1c652fdddad4e5f4ce939de648/adaa8841e0f3ebec-d3/s500x750/597054760f0444105dc7edeb1704cc02fdfb3abe.pnj">
+  </p>
