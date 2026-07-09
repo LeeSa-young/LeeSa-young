@@ -29,7 +29,7 @@
  　　　　　　leave　 a　 message　  in　 my　 　 <a href="https://hash8f2240.atabook.org">ata</a>
  </p>
    <p align="center">
-　　　 　 　　 　　　if 　 you　 want　 to
+　　　 　 　　 if 　 you　 want　 to
  </p>
 
  <p align="center">
