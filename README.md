@@ -5,5 +5,5 @@
   </p>
 
   <p align="center">
-    　  　   　  　    　 　  　　  　adult　—　 $${\color{#897cb4}18teen}$$ 　　　　　　mentally　　 unstable
+    　  　   　  　    　 　  　　 adult　—　 $${\color{#897cb4}18teen}$$ 　　　　　　mentally　　 unstable
   </p>
