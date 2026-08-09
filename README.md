@@ -20,7 +20,7 @@
 　 
   </p>
     <p align="center">
-　　　　　　make　  sure 　to 　check　 my　 <a href="https://rentry.co/cej-">rentry</a>
+　　　　　　make　  sure 　to 　check　 my　 <a href="https://txto.eu.org/cej">info</a>
       </p>
         <p align="center">
 　　　　　 $${\color{#af96be}before　 interacting　 with　 me 　 　 !}$$ 
